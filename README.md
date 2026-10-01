@@ -1,0 +1,1 @@
+# privacyPolicy_for_learn_to_read
